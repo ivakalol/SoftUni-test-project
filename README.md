@@ -1,0 +1,1 @@
+Ivaka editva v momenta neshto yes
