@@ -1,1 +1,1 @@
-Ivaka editva v momenta neshto yes
+Begginer Soft Uni projects. Nothing recent and new
